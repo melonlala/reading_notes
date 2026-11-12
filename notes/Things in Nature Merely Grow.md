@@ -2,6 +2,8 @@
 
 **作者**：Yiyun Li · **进度**：98% · **笔记**：划线 8 · 想法/点评 3 · 书签 0
 
+[打开阅读](https://weread.qq.com/web/reader/7e642673643425f46325630467230467534724b37336137314d374e37455662ffc)
+
 ## I. There Is No Good Way to Say This
 
 > extremity: any adjective is an irrelevance when it comes to extremity.
@@ -11,7 +13,6 @@
 ## II. A Matter of Facts
 
 > No one commits suicide unthinkingly.
-> 
 
 <sub>2026-05-06</sub>
 
@@ -23,14 +24,13 @@
 
 > find a way out of that all-encompassing bleakness unaided.
 
-<sub>2026-05-10</sub>
+<sub>2026-05-11</sub>
 
 ## XI. Abyss as a Habitat
 
 > If an abyss is where I shall be for the rest of my life, the abyss is my habitat. One should not waste energy fighting one’s habitat.
-> 
 
-<sub>2026-05-12</sub>
+<sub>2026-05-13</sub>
 
 ## XII. Things in Nature Merely Grow
 
@@ -44,7 +44,7 @@
 
 > there’s no place for shyness in writing,
 
-<sub>2026-05-13</sub>
+<sub>2026-05-14</sub>
 
 ## XIV. Now and Then, Now and Now, Now and Later
 
@@ -57,11 +57,8 @@
 > After Vincent died, I wrote in the book for him that, instead of now and then and later and much later, life without him was going to be now and now and now and forever. But I was not accurate in that sentence; I should have said part of my life. Because there was another part of that same life as a mother, which moved on from that point, in the most time-bound manner: bringing up James.
 > 
 > There were still days and nights, seasons and years, things to do, places to go. And, of course, there was the new reality of Vincent’s absence—his physical absence, I should say. When the old framework for living was destroyed, a mother’s job was to make a new framework.
-> 
 
-💭 
-
-<sub>2026-05-18</sub>
+<sub>2026-05-19</sub>
 
 > XIV Now and Then, Now and Now, Now and Later 
 > 
@@ -69,16 +66,14 @@
 > 
 > Aristotle, in his effort to explain the concept of indivisibleness, compared a point in geometry to the now in time. So this now is as definite and concrete and yet as ineffable and incommunicable as a point in geometry. How long is now: a minute, an hour, sixyears, half a lifetime?
 
-💭 
-
-<sub>2026-05-18</sub>
+<sub>2026-05-19</sub>
 
 ## XVIII. Marking Time
 
 > What else can I do but to go on with the things I can do, to keep my body nourished and active and my mind occupied and sharp?
 
-<sub>2026-05-20</sub>
+<sub>2026-05-21</sub>
 
 > The phrase “to mark time” is defined in the OED this way: “Originally Military, to march on the spot, without moving forward; (figurative) to act routinely, to go through the motions, esp. while awaiting an opportunity for something.”
 
-<sub>2026-05-20</sub>
+<sub>2026-05-21</sub>

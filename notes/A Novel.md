@@ -2,6 +2,8 @@
 
 **作者**：Yiyun Li · **状态**：读完 · **笔记**：划线 19 · 想法/点评 0 · 书签 0
 
+[打开阅读](https://weread.qq.com/web/reader/ad4428e3643425f36547636674a366878424f54366e5a367044316c69476679024)
+
 ## Chapter 2: Waylaid by Days
 
 > Once at a party someone asked what were the qualities in other people that set one off. I said imprecision.
@@ -10,21 +12,21 @@
 
 > the root of the word fault came from to disappoint, to deceive.
 
-<sub>2024-04-14</sub>
+<sub>2024-04-15</sub>
 
 > Who can say to love doesn’t also mean to disappoint and to deceive? I said.
 
-<sub>2024-04-14</sub>
+<sub>2024-04-15</sub>
 
 > hose who disappoint or deceive don’t always do so from love, he said.
 
-<sub>2024-04-14</sub>
+<sub>2024-04-15</sub>
 
 ## Chapter 3: The Trespassers
 
 > It’s lazy-minded of you to say you don’t believe in something that you don’t understand.
 
-<sub>2024-04-14</sub>
+<sub>2024-04-15</sub>
 
 > Does one have to stay out of part of one’s own mind? I asked.If you don’t want to be out of your mind entirely, he said.
 
@@ -40,23 +42,23 @@
 
 > Many times I thought, Okay, let me believe you this once and wait, and things may change, and I may feel differently.
 
-<sub>2024-04-24</sub>
+<sub>2024-04-25</sub>
 
 > I suppose most people don’t want to admit failure so they keep taking more credits from more tomorrows and get into deeper debt.
 
-<sub>2024-04-24</sub>
+<sub>2024-04-25</sub>
 
 > writing is for people who don’t want to feel or don’t know how to.
 
-<sub>2024-04-24</sub>
+<sub>2024-04-25</sub>
 
 > You cannot not write. You don’t even mind writing badly. 			Because I don’t want to feel sad or I don’t know how to feel sad?
 
-<sub>2024-04-24</sub>
+<sub>2024-04-25</sub>
 
 > Does a person commit suicide because he doesn’t want to live, or doesn’t know how to live?
 
-<sub>2024-04-24</sub>
+<sub>2024-04-25</sub>
 
 ## Chapter 7: So Many Windows, So Many Flowers
 
@@ -82,12 +84,12 @@
 
 ## Chapter 9: Forever
 
-> All the same 
+> All the same
 
-<sub>2026-02-09</sub>
+<sub>2026-02-10</sub>
 
 ## Chapter 11: Wishing You Were Somehow Here Again
 
 > adamant advocate for the Oxford comma.
 
-<sub>2026-02-10</sub>
+<sub>2026-02-11</sub>

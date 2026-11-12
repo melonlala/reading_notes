@@ -2,6 +2,8 @@
 
 **作者**：Peter Thiel / Blake Masters · **进度**：11% · **笔记**：划线 1 · 想法/点评 2 · 书签 0
 
+[打开阅读](https://weread.qq.com/web/reader/e2f327b0813ab98f8g016808)
+
 ## Preface ZERO TO ONE
 
 > our surroundings are strangely old: only computers and communications have improved dramatically since midcentury.
